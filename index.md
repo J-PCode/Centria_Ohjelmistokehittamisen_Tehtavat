@@ -20,7 +20,7 @@ If you're thinking to yourself, **_This is unbelievable_**, you'd probably be ri
 ###### Header six
 
 ## b
-#### Colombian Symbolism in _One Hundred Years of Solitude_ ####
+#### Colombian Symbolism in _One Hundred Years of Solitude_
 
 Here's some words about the book _One Hundred Years..._.
 
